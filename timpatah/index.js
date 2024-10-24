@@ -1,2 +1,1 @@
 //Dicky mamentu
-//Nainking Najoan
